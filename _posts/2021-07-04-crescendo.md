@@ -4,7 +4,6 @@ title: "Crescendo"
 categories: poetry
 ---
 
-# Crescendo  
 The sparks  
 Fly across the moonlit sky  
 The flags wiggle  
