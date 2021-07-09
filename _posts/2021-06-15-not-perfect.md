@@ -3,7 +3,6 @@ layout: post
 title: "There is never a perfect moment"
 categories: writing 
 ---
-
 All I can say, is I suck. The world sucks. As the world re-opens, I want to run to my swampy apartment. I want to smash windows. I want to scream on my 4 person slack call with my coworkers. I want to run for the bathroom filled with a single washer. I want to hide under the coffee table that holds all of my magazines: the New Yorker, Outside, the Economist, The New York Review of Books, Out, The Advocate, etc. But why do I want to run away? Why create chaos before running away?
 
 My soul weeps for meaning. It yearns to be seen by others. Why do you think Facebook, Instagram, Twitter, and YouTube exist? Why is it okay to use technology to share stories on all of these platforms? Are these platforms one giant high-school superlative section, where everyone creates their own category on what they will be remembered by. I’d be remembered as the “overly-dramatic-semi-math-whiz-but-hates-working-together-with-people-because-he-think’s-the-world-reinforces-white-supremancy-but-used-to-identify-as-a-navahoe-and-is-now-radically-spiritual-about-dance-and-hiking-and-the-Divine”

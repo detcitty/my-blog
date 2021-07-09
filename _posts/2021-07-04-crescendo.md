@@ -3,7 +3,6 @@ layout: post
 title: "Crescendo"
 categories: poetry
 ---
-
 The sparks  
 Fly across the moonlit sky  
 The flags wiggle  

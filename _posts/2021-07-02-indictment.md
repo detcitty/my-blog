@@ -3,7 +3,6 @@ layout: post
 title: "An Indictment"
 categories: poetry
 ---
-
 When I think of Jesus,  
 He spoke to the marginalized:  
 Women, the poor, the sick, the grieving  

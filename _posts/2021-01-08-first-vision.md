@@ -3,7 +3,6 @@ layout: post
 title: "The First Vision Accounts"
 categories: lds 
 ---
-
 Art is communication. Communicating conveys our human and spiritual emotions. The art of communicating happens through writing, oral stories, paintings, dance, music, etc. Recently, I read a book about authors who wrote a memoir, and they give their own ideas about what makes memoirs powerful. This is what I learned: there can be one objective and factual retelling of an event, but a memoirist can revisit a specific memory over the course of their lifetime providing multiple interpretations given the circumstances in his or her life. A person who is 20 years old will tell a much different story than when they are 65 years old. So, do life experiences taint our memories? If we retail a story that is slightly different, does that mean we are wrong about what “actually” happened?
 
 I believe Joseph Smith is a memoirist who continued his journey within the church, and overtime, he provided his own personal meanings to the first encounter with Divinity. Now, the emphasis of the First Vision in the last century may be a way to direct us to have our own encounters with Heavenly Father, Heavenly Mother and Jesus Christ. 
