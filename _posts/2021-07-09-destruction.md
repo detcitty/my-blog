@@ -1,3 +1,9 @@
+---
+layout: post
+title: "Self-Destruction"
+categories: writing
+---
+
 On a cold winter night in the Upper West Side of New York City, I almost killed myself. As I write this blog, I try to answer the question: Why? Most of all, why could I not do it? 
 
 My brain feels like an Amazon packing facility: there’s so much going on and employees get eaten alive in the corporate culture to work, work, work. I’m overwhelmed. When I get anxious, I overthink things. So, I’m oscillating between the phrases: I don’t know and I don’t understand. 
