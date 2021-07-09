@@ -8,20 +8,20 @@ On a cold winter night in the Upper West Side of New York City, I almost killed 
 
 My brain feels like an Amazon packing facility: there’s so much going on and employees get eaten alive in the corporate culture to work, work, work. I’m overwhelmed. When I get anxious, I overthink things. So, I’m oscillating between the phrases: I don’t know and I don’t understand. 
 
-I don’t know why I get so depressed.
-I don’t understand how my sadness overpowers happy feelings.
-I don’t know why I stayed silent as my therapist asked if I would hurt myself.
-I don’t understand how I survived 3 days in a psyche ward. 
-I don’t know why I am the way I am.
-I don’t understand how relationships bring peace.
-I don’t know why I isolate myself.
-I don’t understand my true purpose in this world.
-I don’t know why being humble and simple brings peace.
-I don’t understand how to help others before helping myself.
-I don’t know why complex and nuanced thinking is shunned.
-I don’t understand how outside beauty is desired so much.
-I don’t know why…
-I don’t understand…
+I don’t know why I get so depressed.  
+I don’t understand how my sadness overpowers happy feelings.  
+I don’t know why I stayed silent as my therapist asked if I would hurt myself.  
+I don’t understand how I survived 3 days in a psyche ward.   
+I don’t know why I am the way I am.  
+I don’t understand how relationships bring peace.  
+I don’t know why I isolate myself.  
+I don’t understand my true purpose in this world.  
+I don’t know why being humble and simple brings peace.  
+I don’t understand how to help others before helping myself.  
+I don’t know why complex and nuanced thinking is shunned.  
+I don’t understand how outside beauty is desired so much.  
+I don’t know why…  
+I don’t understand…  
 
 I have my identity wrapped into a minuscule experience. But my former therapist told me: “The only way out is through.”
 
