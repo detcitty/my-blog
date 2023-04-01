@@ -1,6 +1,6 @@
 ---
 layout: post
-title: “Consistency”
+title: Consistency
 categories: goals
 ---
 My body’s rhythm doesn’t stop. My legs change the tempo set by my heart. A slow percussive step turns into a loud melody down the hall. But that’s not all I feel. There is a burning story inside my body. The story wants to be released into the world, and I cannot control the desires within my veins. The disordered thoughts want to be written down into a three-act play.  
